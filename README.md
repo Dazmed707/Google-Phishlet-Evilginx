@@ -1,7 +1,7 @@
 # Google-Phishlet-Evilginx
 RED TEAM ATTACK WITH EVILGINX AND GOOGLE PHISHLET
 
-If Ud need Google Phishlet send me a message in telegram @NDLR7
+If Ud need Google Phishlet send me a message in telegram @PSDT707
 
 Phishlet only sell, not free.
 
