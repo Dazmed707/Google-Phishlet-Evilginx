@@ -10,4 +10,4 @@ Conctact me, only if u have resources for buy in USDT.
 -------------------------------------------------------------------
 EVILGINX MASTERY COURSE (OFFICIAL) - 25$ USDT
 
-https://d31ezp3r8jwmks.cloudfront.net/1i2wfrtkbi1bc9fnj3fe8pwmbqx6
+![evilginx-mastery-box-image](https://github.com/Dazmed707/Google-Phishlet-Evilginx/assets/35184132/eee6bf77-a6f0-4203-ba65-781bafd74df9)
