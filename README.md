@@ -12,7 +12,7 @@ Conctact me, only if u have resources for buy in USDT, BTC, ETH, DGB..
 
 ![evilginx-mastery-box-image](https://github.com/Dazmed707/Google-Phishlet-Evilginx/assets/35184132/eee6bf77-a6f0-4203-ba65-781bafd74df9)
 
-BYPASS SAFE BROWSER (RES SCREEN) AVAILABLE
+BYPASS SAFE BROWSER (RED SCREEN) AVAILABLE
 
 <img width="512" alt="image" src="https://github.com/Dazmed707/Google-Phishlet-Evilginx/assets/35184132/6ecb9ad2-85b3-4109-b345-7611fb1c0619">
 
